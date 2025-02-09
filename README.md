@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @afshin3179
 - 👀 I’m interested in music
-- 🌱 I’m currently learning iran
+- 🌱 I’m currently learning piano
 - 💞️ I’m looking to collaborate on airdrop
 - 📫 Contact me with this email afshinheidari99@gmail.com
 - 😄 Pronouns: ❤️
